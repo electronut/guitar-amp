@@ -12,3 +12,6 @@ Mini Tin Can Amp (Post-Apocalyptic Amplifier)
 
 https://www.youtube.com/watch?v=QwaLQ04I04s
 
+Buffers for Guitar Amps
+
+http://www.muzique.com/lab/buffers.htm
